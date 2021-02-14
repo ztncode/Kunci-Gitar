@@ -1,0 +1,2 @@
+# Kunci-Gitar
+All Chord
